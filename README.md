@@ -1,1 +1,0 @@
-# ASIXM4UF1_A10_Turisme-local_DerezyukMaksym
